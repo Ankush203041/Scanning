@@ -1,2 +1,2 @@
 # scanning
-kl karu ga
+Aaj karu ga
